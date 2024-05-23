@@ -1,3 +1,4 @@
+I THINK I DON'T BELONG HERE AFTER LOOKING AROUND!!!
 - 👋 Hi, I’m Karla 0f tomkarlaw
 - 👀 I’m interested in paper crafting, cardmaking mostly. And trying to learn how to operate this new laptop!!!
 - 🌱 I’m currently learning EVERYTHING!!!! I'm retired and the world keeps changing.
